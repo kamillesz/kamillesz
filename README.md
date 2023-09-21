@@ -8,3 +8,6 @@
  -🖥️
 
  -@kamille_scherzoski
+
+![]()
+https://media.tenor.com/Sfl56EnmvusAAAAM/rory-gilmore-gilmore-girls.gif
