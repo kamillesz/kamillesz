@@ -9,5 +9,5 @@
 
  -@kamille_scherzoski
 
-![](https://media.tenor.com/Sfl56EnmvusAAAAM/rory-gilmore-gilmore-girls.gif)
+![]( https://media.tenor.com/ZhQh7svSTnQAAAAC/gilmore-girls-gilmore-clube.gif
  
