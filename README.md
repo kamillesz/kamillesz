@@ -2,5 +2,7 @@
 
 
  -meu nome é kamille 🥦
+ 
  -pensamento computacional
+ 
  -🖥️
